@@ -11,4 +11,5 @@ como hace los tracks. Marino
 emial Marino en contacto web Alaitz.
 
 
-Fotografias antiguo modo de colgarlar. Marino. 
+Fotografias antiguo modo de colgarlar. Marino.
+hacer memoria
